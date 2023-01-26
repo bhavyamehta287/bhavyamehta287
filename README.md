@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @bhavyamehta287
-- 👀 I’m interested in UI/UX
-- 🌱 I’m currently learning Graphic Designing and UI/UX
+- 👀 I’m a UX designer
+- 🌱 I’m currently exploring different aspects of Technology and Design.
